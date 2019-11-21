@@ -21,5 +21,5 @@
 
 - Heat a pan on medium heat. 
 - Poor a scoup of batter in the pan. 
-- After 30 seconds, turn over the pancakes. 
+- After 30 seconds, turn over the pancakes. ADD LOTS OF SALT AND CHEESE!
 - After another 30 seconds, get the pancake out of the pan.
