@@ -1,4 +1,4 @@
-# Pancakes 
+# Granny's Pancakes 
 
 - Buy pancakes from the store. 
 
